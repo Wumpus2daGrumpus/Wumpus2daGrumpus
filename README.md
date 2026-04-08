@@ -1,5 +1,6 @@
 ## Hello, you may call me Zee or Wumpus! I am an artist, my socials are all under the same name "Wumpus2daGrumpus". My fandoms are NINAH, ATHF, Metalocalypse, and Smiling Friends. My favorite music artists are Primus, BH Surfers, Ween, Beck, and Radiohead.
 ![Ninah (1)](https://github.com/user-attachments/assets/73c479b2-7598-4be7-b6dd-c4bc3dd0bd8d)
+
 This is my yumeship ^^^ I call it Foiltheory, and my OC is named Tin Hatter
 <!--
 **Wumpus2daGrumpus/Wumpus2daGrumpus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
