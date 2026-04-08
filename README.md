@@ -1,4 +1,5 @@
 ## Hi there 👋
+![Ninah (1)](https://github.com/user-attachments/assets/73c479b2-7598-4be7-b6dd-c4bc3dd0bd8d)
 
 <!--
 **Wumpus2daGrumpus/Wumpus2daGrumpus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
