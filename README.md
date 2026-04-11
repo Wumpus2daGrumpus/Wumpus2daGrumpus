@@ -4,7 +4,7 @@
 This is my yumeship ^^^ I call it Foiltheory, and my OC is named Tin Hatter
 
 
-Some NINAH ships make me uncomfortable, even if they aren't darkships, so keep them away from me, please and thank you! (these ships are Sleepless Man x Amogus Guy and Suit Guy x Taxi Driver, that’s it!)
+FYI, I am uncomfortable with the ship Sleepless Man x Amogus Guy, so if you ship that, please don't talk about it around me! No offense if you like it :)
 <!--
 **Wumpus2daGrumpus/Wumpus2daGrumpus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
