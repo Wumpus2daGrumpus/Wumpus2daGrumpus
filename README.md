@@ -2,6 +2,9 @@
 ![Ninah (1)](https://github.com/user-attachments/assets/73c479b2-7598-4be7-b6dd-c4bc3dd0bd8d)
 
 This is my yumeship ^^^ I call it Foiltheory, and my OC is named Tin Hatter
+
+
+Some NINAH ships make me uncomfortable, even if they aren't darkships, so keep them away from me, please and thank you! (these ships are Sleepless Man x Amogus Guy and Suit Guy x Taxi Driver, that’s it!)
 <!--
 **Wumpus2daGrumpus/Wumpus2daGrumpus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
