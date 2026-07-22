@@ -1,4 +1,5 @@
 ## Hello, you may call me Wumpus! I am an artist, my socials are all under the same name "Wumpus2daGrumpus". My fandoms are ATHF, Metalocalypse, and Smiling Friends. My favorite music artists are Primus, BH Surfers, Ween, Beck, and Radiohead.
+<img width="1620" height="2160" alt="image" src="https://github.com/user-attachments/assets/13fa22b7-6284-443f-8353-e4a1bf389163" />
 
 <!--
 **Wumpus2daGrumpus/Wumpus2daGrumpus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
