@@ -1,5 +1,7 @@
 ##
 <img width="1620" height="2160" alt="image" src="https://github.com/user-attachments/assets/13fa22b7-6284-443f-8353-e4a1bf389163" />
+some cruddy art of baby cakes vvv
+<img width="1620" height="2160" alt="image" src="https://github.com/user-attachments/assets/aa9f0e08-9ef6-4660-93cb-0cf62d4322ca" />
 
 <!--
 **Wumpus2daGrumpus/Wumpus2daGrumpus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
