@@ -3,6 +3,10 @@
 
 I forgot to add this, but R&M fans, you're on THIN ICE, I prefer it if you dni
 
+anyway, my OC Looney Louie vvv
+<img width="1620" height="2160" alt="image" src="https://github.com/user-attachments/assets/d3fd7f46-8c88-48d5-aeb3-22034784855e" />
+
+
 <!--
 **Wumpus2daGrumpus/Wumpus2daGrumpus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
