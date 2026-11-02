@@ -3,6 +3,10 @@
 
 I forgot to add this, but R&M fans, you're on THIN ICE, I prefer it if you dni
 
+anyway, here’s some art of my favorite musicians vvv
+
+<img width="1374" height="1427" alt="image" src="https://github.com/user-attachments/assets/f4482586-71c6-482f-8bc1-206e66881f3c" />
+
 
 
 <!--
