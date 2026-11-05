@@ -1,11 +1,6 @@
 ##
-<img width="1620" height="2160" alt="image" src="https://github.com/user-attachments/assets/555984bb-dffa-4744-b8ac-4ddd7f58458b" />
+<img width="1643" height="2059" alt="image" src="https://github.com/user-attachments/assets/907023ab-d378-43c6-b5d9-c792992869d9" />
 
-I forgot to add this, but R&M fans, you're on THIN ICE, I prefer it if you dni
-
-anyway, here’s some art of the GOATs Gener and Deaner vvv
-
-<img width="1376" height="1417" alt="image" src="https://github.com/user-attachments/assets/55f3f3c0-a79a-456b-8f20-98188d4ae734" />
 
 <img width="490" height="360" alt="image" src="https://github.com/user-attachments/assets/15c39eb1-5f1a-4f79-abec-78223523bd59" />
 
